@@ -1,0 +1,1 @@
+Détail de l'exercice
